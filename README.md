@@ -1,4 +1,3 @@
-manifesto
-=========
+# My Manifesto
 
-My living manifesto &amp; other things I believe in.
+## My living manifesto & other things I believe in.
