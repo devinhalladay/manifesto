@@ -27,6 +27,7 @@ Crush the establishment.
 * Thought and speech filters are overrated.
 * Even men need to cry sometimes.
 * Nice guys never win.
+* Green chile is the spice of life.
 
 ### The Universe
 * We'll never know everything about anything.
