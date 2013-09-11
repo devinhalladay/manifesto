@@ -25,9 +25,14 @@ Crush the establishment.
 * Just fucking be yourself.
 * Always voice our opinions.
 * Thought and speech filters are overrated.
-* Even men need to cry sometimes.
 * Nice guys never win.
 * Green chile is the spice of life.
+* Never stop thinking.
+* Curiosity has only killed cats — it's never killed a human.
+* Everything is going to be just fine.
+* Stop rushing. Stop and smell the roses, or the car exhaust (actually don't smell car exhaust).
+* Going to the bathroom is neither a right nor a privilege. it’s an act of nature.
+* It's not half empty or half full. It's half a glass.
 
 ### The Universe
 * We'll never know everything about anything.
