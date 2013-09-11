@@ -59,7 +59,7 @@ Crush the establishment.
 * Just fucking build stuff.
 * Sometimes making shit is the best cure for a creative block.
 * We all started somewhere. Remember to help out young designers or craftsmen — you were once standing in their shoes.
-* Always ask for negative feedback.
+* Always ask for criticism.
 * Never *ask* for positive feedback. If your work is good enough, it will come naturally.
 * Writing is an important skill for any creator.
 * Make music.
