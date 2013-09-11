@@ -1,7 +1,8 @@
 # Manifesto
 **My living manifesto & other things I believe in.**
 
-*This is intended to be a living document, subject to change and edits at any time, for any reason.*
+*This is intended to be a living document, subject to change and edits at any time, for any reason.*  
+***Please submit a pull request if you have some knowledge to share.***
 
 *Last edited: September 11, 2013*
 
