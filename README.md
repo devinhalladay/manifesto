@@ -16,6 +16,9 @@ Crush the establishment.
   
 ***
 
+### The most important rule.
+* Dont take *anything*, not even this, too seriously.
+
 ### Life
 * Rules are made to be broken.
 * Nobody knows what they're doing.
