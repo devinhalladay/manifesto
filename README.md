@@ -33,6 +33,7 @@ Crush the establishment.
 * Stop rushing. Stop and smell the roses, or the car exhaust (actually don't smell car exhaust).
 * Going to the bathroom is neither a right nor a privilege. it’s an act of nature.
 * It's not half empty or half full. It's half a glass.
+* We are all about as similar as we are different.
 
 ### The Universe
 * We'll never know everything about anything.
@@ -48,7 +49,8 @@ Crush the establishment.
 * Be random and spontaneous. Who cares if people think you're weird?
 * I am weird. A lot of people are afraid of that; but I just embrace it.
 * "I don't do drugs, I am drugs." — Salvador Dali
-* You're not even close to perfect, so stop trying to be.
+* Stop trying to be perfect. Just be happy with yourself.
+* Talking to yourself is healthy. Is there anyone that you have more in common with?
 
 ### Relationships (Romantic & Otherwise)
 * Be spontaneous.
