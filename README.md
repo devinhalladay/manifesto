@@ -37,6 +37,8 @@ Crush the establishment.
 * Going to the bathroom is neither a right nor a privilege. it’s an act of nature.
 * It's not half empty or half full. It's half a glass.
 * We are all about as similar as we are different.
+* Rainy days are the best days.
+* Education is insanely important.
 
 ### The Universe
 * We'll never know everything about anything.
@@ -54,6 +56,7 @@ Crush the establishment.
 * "I don't do drugs, I am drugs." — Salvador Dali
 * Stop trying to be perfect. Just be happy with yourself.
 * Talking to yourself is healthy. Is there anyone that you have more in common with?
+* Just fucking be yourself.
 
 ### Relationships (Romantic & Otherwise)
 * Be spontaneous.
