@@ -11,8 +11,11 @@
 There is no solace in conformity — there is only a warped view of who you are and who you want to be.  
 Spend your short existence creating something, helping someone, and changing the world.  
 Betray the Institution.  
-Crush the establishment.  
-  
+Crush the establishment.
+
+## My Mottos
+* Betray the Institution
+* Tear down your idols.
   
 ***
 
